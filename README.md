@@ -1,1 +1,0 @@
-# s-navda-yapabildiyim4-sorunun-cevab-
